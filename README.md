@@ -1,5 +1,6 @@
-### Hello This is Kushank Sapate👋
+<img src= "https://media-exp1.licdn.com/dms/image/C4D16AQEhBtGjDnU1SQ/profile-displaybackgroundimage-shrink_350_1400/0/1655282584378?e=1661990400&v=beta&t=OFgIfbcUhEjWythEJ8PnO331SfHuoeI0dFIDRqtpZos">
 
+### Hello This is Kushank Sapate👋
 
 Here are some ideas to get you started:
 
