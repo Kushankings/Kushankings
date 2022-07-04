@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about Technology & Buisness 
 - 📫 How to reach me: kushank2000@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I'm Super Versatile (Coding, Designing, Creating Content etc.)
+- ⚡ Fun fact: I'm Super Versatile (Coding, Designing, Creating Content ..etc)
 
